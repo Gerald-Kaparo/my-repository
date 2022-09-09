@@ -1,0 +1,1 @@
+I am Gerald Kaparo, an Upcoming software developer. I just joined GitHub a few days ago and alreadyb rocking! My Dream is to be come a sinior UX designer and a full stack developer with the help of Moringa heros!
